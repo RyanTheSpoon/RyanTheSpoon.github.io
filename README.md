@@ -1,1 +1,0 @@
-This is a personal portfolio for Ryan W.
